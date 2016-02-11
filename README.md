@@ -1,1 +1,0 @@
-# shijogeorge.github.io
